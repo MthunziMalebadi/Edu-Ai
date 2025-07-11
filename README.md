@@ -158,4 +158,3 @@ Mthunzi Malebadi
 Sinesipho Sibulo
 Ondela Citywayo
 Segai Bryton Mampshika
-Vhuhwavho Mawela Masalesa
